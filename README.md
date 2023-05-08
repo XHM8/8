@@ -2,9 +2,9 @@
 ## 点击以下链接进入下载页：
 
 主播版下载地址 
-### [gnm8.club](https://gnm8.club)
-### [hky2.club](https://hky2.club)
-### [qwk6.club](https://qwk6.club)
+### [xhm2.club](https://xhm2.club/pusher)
+### [xhm9.live](https://xhm9.live/pusher)
+### [xxnm.club](https://xxnm.club/pusher)
 
 （观众下载无法使用）
 
